@@ -1,3 +1,3 @@
-# xq-cn.github.io
+# xqneko.github.io
 
 Hi. 
